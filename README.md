@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sinistercake (Jaime)
 
-- ✨I make stupid apps for stupid users ✨ I am the government ✨
+- ✨ I fix bugs ✨ I am the government ✨
 
 - 📫 How to reach me ... ja.castro516@outlook.com 
 
