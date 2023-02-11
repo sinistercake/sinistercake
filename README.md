@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sinistercake (Jaime)
 
-- ✨ Professional bug fixer/creator @ The Government ✨
+- ✨ Professional bug fixer/creator @ the government ✨
 
 - 📫 How to reach me ... ja.castro516@outlook.com 
 
